@@ -390,3 +390,5 @@ Please note that it is not encouraged to blindly apply to every company on this 
 | [Zscaler](https://www.zscaler.com/careers/) | San Jose, CA |
 | [Zuora](https://www.zuora.com/about/careers/) | Foster City, CA; Remote |
 | [Zynga](https://www.zynga.com/careers) |  |
+  [Schultes](https://www.scottishterrierpuppies.org/) | Eva , AL |
+  
